@@ -1,0 +1,11 @@
+CS1908:
+  name: Christ in Song
+  abbvr: CS1908
+  year: '1908'
+  numSongs: '949'
+  lang: en
+  compiler: Belden, F. E. (Franklin Edson)
+  link: 'christ-in-song'
+  gtLink: adventhymnals/christ-in-song-csycms
+  sheets:
+    pdf: https://raw.githubusercontent.com/GospelSounders/christ-in-song-pdfs/master/splitFiles
