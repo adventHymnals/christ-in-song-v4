@@ -1,0 +1,29 @@
+
+## 896.  'Awake, Ye Saints'
+[edit](https://docs.google.com/document/d/1x3J%2Dm_dqSnp5EMpozmvo8tb8GAZzhsoa/edit?mode=html)
+
+
+
+    1.
+    Awake, ye saints, and raise your eyes,
+    And raise your voices high;
+    Awake, and praise that sov'reign love
+    That shows salvation nigh;
+    Awake, and praise that sov'reign love
+    That shows salvation nigh.
+
+    2.
+    Swift on the wings of time it flies;
+    Each moment brings it near;
+    Then welcome each declining day,
+    Welcome each closing year;
+    Then welcome each declining day,
+    Welcome each closing year.
+
+    3.
+    Not many years their round shall run,
+    Not many mornings rise,
+    Ere all its glories stand revealed
+    To our admiring eyes;
+    Ere all its glories stand revealed
+    To our admiring eyes.

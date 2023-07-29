@@ -1,0 +1,23 @@
+
+## 792.  Each Returning Morn
+[edit](https://docs.google.com/document/d/1CxwN1xQf5aEGmPKiqYjIyYg4s76qE6vd/edit?mode=html)
+
+
+
+    1.
+    O Christ, with each returning morn
+    Thine image to our hearts be borne;
+    And may we ever clearly see
+    Our dearest treasure, Lord, in thee!
+
+    2.
+    All hallowed be our walk this day;
+    May meekness form our morning ray,
+    And faithful love our noontide light,
+    And hope our sunset, calm and bright.
+
+    3.
+    May grace each idle thought control,
+    And sanctify each wayward soul;
+    May guile depart, and malice cease,
+    And all within be joy and peace.

@@ -1,0 +1,29 @@
+
+## 610.  Vale of Beulah
+[edit](https://docs.google.com/document/d/18LemRv5m_lzpKjFeAe1KoYn5oCtvju0A/edit?mode=html)
+
+
+
+    1.
+    I am passing down the valley that they say is so lone
+    'Tis to me the vale of Beulah, 'tis a beautiful way,
+    But I find that all the pathway is with flowers o'ergrown.
+    For the Saviour walks besid me, my companion all day.
+
+    Chorus:
+    Vale of Beulah, Vale of Beulah,
+    Thou art precious to me;
+    For the lovely land of promise
+    In the distance I see.
+
+    2.
+    Not a shadow, not a shadow ever darkens the way,
+    And the music, sweetly chanted by the heavenly throng,
+    For a radiance of rare glory shines upon it all day;
+    Floats in cadence down the valley, and it cheers me along.  [Chorus]
+
+    3.
+    So I journey with rejoicing toward the city of light,
+    And I near the open portals of the kingdom above,
+    While each day my joy is deeper, and the path grows more bright.
+    For this highway leads to heaven, to the kingdom of love.  [Chorus]

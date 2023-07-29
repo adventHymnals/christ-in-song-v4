@@ -1,0 +1,11 @@
+
+## 467.  Glory be to the Father\_1
+[edit](https://docs.google.com/document/d/1kVtCbSbc5HqC5TuYl4mO_QkVUCT9TP9Q/edit?mode=html)
+
+
+
+    Glory be to the Father, 
+    and to the Son, and to the Holy Ghost;
+    As it was in the beginning,
+    is now, and ever shall be,
+    world without end.  Amen.  Amen.
